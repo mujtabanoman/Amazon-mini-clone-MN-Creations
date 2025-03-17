@@ -1,1 +1,0 @@
-# Amazon-mini-clone-MN-Creations
